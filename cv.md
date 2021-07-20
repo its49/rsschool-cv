@@ -14,11 +14,23 @@ Btw it is ironic i've got best possible contact links, but no one's gonna contac
 - **Javascript**, **CSS** and **HTML** &nbsp;Basic Level
 - **GIT** &nbsp;Basic Level
 - **VSCODE** and **VIM** &nbsp;Basic+ Level
-- **Photoshop** &nbsp;Amateur Level
 - **Markdown** (lol)
+- **Photoshop** &nbsp;Amateur Level
 
 ### Code Example
-&nbsp;&nbsp;&nbsp;Apparently, there is nothing worth mention rn.
+&nbsp;&nbsp;&nbsp;Apparently, there is nothing worth mentioning rn.
 
 ### Job Experience
 &nbsp;&nbsp;&nbsp;At IT - None. 
+
+### Education
+&nbsp;&nbsp;&nbsp;**Secondary Ed.** at some common school\
+&nbsp;&nbsp;&nbsp;**JS-FrontEnd-Preschool** course i'm trying out rn at [**RS School**](https://rs.school/), seems interesting
+
+### Languages
+&nbsp;&nbsp;&nbsp;**Russian** native
+&nbsp;&nbsp;&nbsp;**English** [c2](https://www.efset.org/cert/XeZj3p)
+
+&nbsp;I think my *understanding* of English is above my *comms&writing*. Mostly the net, online games, some partners\
+&nbsp;and various media content were my teachers. There goes -25 EFSET points from 100.\
+&nbsp;I can chat, read documentation, articles, books and watch videos, films, etc. on english pretty nicely
