@@ -1,5 +1,5 @@
 ## Nikita T.
-###### *14.04.2000*, 21. yo.
+###### *14.04.2000*, 21 yo. from Minsk, Belarus.
 ##### *Discord:* [*serial_chiller#4309*](https://discord.com/users/493925008654073857) | *GitHub:* [*its49*](https://github.com/its49) | *Gmail:* [*49.m1nds3t@gmail.com*](https://mail.google.com/mail/u/0/?fs=1&tf=cm&&to=49.m1nds3t@gmail.com&)
 ### About
 &nbsp;Doing everything i can to fight my EX-rank procrastination and get control over my fate.\
